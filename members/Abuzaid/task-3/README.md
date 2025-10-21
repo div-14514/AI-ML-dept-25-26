@@ -1,3 +1,0 @@
-# Task 3
-
-Coming soon...
